@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+This blog will be about the different things that I encounter. Also, a window into my life and interests for potential employers. 
